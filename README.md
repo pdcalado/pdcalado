@@ -1,4 +1,4 @@
 ### Hi, I'm Calado
 
-[calado.site](https://calado.site)
+I love technology, especially software and computers, checkout [calado.site](https://calado.site) if you'd like to know more about me.
 
